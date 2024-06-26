@@ -1,1 +1,11 @@
 # rn-assignment5-11024572
+![photo_2024-06-26_19-28-52](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/bcc8f41f-3ebb-4b40-bd25-98549f91a703)
+![photo_2024-06-02_18-09-16](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/77087b9c-ea8a-418c-aacd-f55f4a007e1a)
+![photo_2024-06-02_18-09-23](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/fec5565f-3865-4a4a-ac30-c590d6e5f421)
+![photo_2024-06-26_19-28-52](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/e911b47d-2c25-4afa-8bf6-96c62865952a)
+![photo_2024-06-26_19-29-04](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/3a60af25-a1c5-48c7-82ba-ed73424246c0)
+![photo_2024-06-26_19-29-11](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/11a1cd0c-45ff-4efd-8eb0-1ceb2dd7f1fd)
+![photo_2024-06-26_19-29-18](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/de4835e5-e787-490b-bb93-ba2a3fde8e86)
+![photo_2024-06-26_19-29-24](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/90eb3489-4ee7-4a9f-a4b2-9d5ce6ca366f)
+![photo_2024-06-26_19-29-31](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/848929ae-cc7d-46da-bee3-aaeb68670080)
+![photo_2024-06-26_19-29-24](https://github.com/11024572/rn-assignment5-11024572/assets/170142523/4971e64d-b7cf-4130-9f4f-e34e2f71b149)
